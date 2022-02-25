@@ -1,12 +1,12 @@
 - 👋 Hi, I’m @MindsMend-org
 
-- 👀 I’m interested in ... Computers & the Innerworkings of
+- 👀 I’m interested in ... Interferometry Nature Math and zeros? whats hidden there?
 
-- 🌱 I’m currently learning ... How to Smash Current Data Compression Rates/Ratios.
+- 🌱 I’m currently learning ... Stuff
 
 - 💞️ I’m looking to collaborate on ...Very Little :)
 
-- 📫 How to reach me ...Scalar Tech 12v &13 watt/per sec!
+- 📫 ........brettpalmer007@gmail.com
 
 
 <!---
