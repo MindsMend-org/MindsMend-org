@@ -1,12 +1,16 @@
 - 👋 Hi, I’m @MindsMend-org
 
-- 👀 I’m interested in ... Interferometry Nature Math and zeros? whats hidden there?
+- 👀 I’m interested in ... Interferometry Nature & Math and zeros? whats hidden there? Your be amazed how reality hides things.
 
 - 🌱 I’m currently learning ... Stuff
 
 - 💞️ I’m looking to collaborate on ...Very Little :)
 
 - 📫 ........brettpalmer007@gmail.com
+
+  
+  
+- EMAIL ME AT mince@foldingcircles.co.uk
 
 
 <!---
