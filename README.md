@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on ...Very Little :)
 
-- 📫 ........brettpalmer007@gmail.com
+- 📫 ........b****p*******7@gmail.com
 
   
   
