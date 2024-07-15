@@ -8,6 +8,19 @@
 
 - 📫 ........FoldingCircles
 
+- Donations of Love & Crypto Welcome 
+
+- ETH: 0x581b91d5751eb77142694E9770f5984f857e2B84
+- DODGE: 0x581b91d5751eb77142694E9770f5984f857e2B84
+- TRX: TT9aMi9JdYQQUj6unE3ddT7pxPyjcWqcw1
+- BTC: bc1qnmycts7xdlzgesf0vwmm940psdvuejrc9grru2
+
+
+
+
+
+
+
   
   
 - EMAIL ME AT mince@foldingcircles.co.uk
