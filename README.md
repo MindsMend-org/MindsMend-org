@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on ...Very Little :)
 
 - 📫 ........FoldingCircles
-- 
+  
 
 - Donations of Love & Crypto Welcome 
 
