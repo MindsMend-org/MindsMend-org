@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on ...Very Little :)
 
-- 📫 ........foldingcircles
+- 📫 ........FoldingCircles
 
   
   
