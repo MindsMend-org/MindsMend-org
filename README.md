@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on ...Very Little :)
 
-- 📫 ........b****p*******7@gmail.com
+- 📫 ........foldingcircles@gmail.com
 
   
   
