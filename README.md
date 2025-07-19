@@ -1,3 +1,5 @@
+- [ Have Some New Very-VERY Interesting Projects to share soon...M]
+  
 - 👋 Hi, I’m @MindsMend-org / FoldingCircles.co.uk
 
 - 👀 I’m interested in ... Interferometry Nature & Math and zeros? whats hidden there? Your be amazed how reality hides things.
