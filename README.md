@@ -1,4 +1,4 @@
-- [ Have Some New Very-VERY Interesting Projects to share soon...M]
+- [M]
   
 - 👋 Hi, I’m @MindsMend-org / FoldingCircles.co.uk
 
