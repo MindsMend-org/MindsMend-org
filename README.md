@@ -1,4 +1,6 @@
 - [M]
+
+- SOON TO RELEASE SN4 the future of AI systems. Where Agents are worthless.
   
 - 👋 Hi, I’m @MindsMend-org / FoldingCircles.co.uk
 
